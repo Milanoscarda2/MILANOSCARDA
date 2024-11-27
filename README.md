@@ -4,7 +4,7 @@
 </p>
  <img src="https://files.catbox.moe/92jgih.jpg" height="90" width="100%">
 
- <a href="https://files.catbox.moe/92jgih.jpg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+MILANOSCARDA╺+MILANO+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝕞𝕚𝕝𝕒𝕟𝕠𝕤𝕔𝕒𝕣𝕕𝕒+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝕞𝕚𝕝𝕒𝕟𝕠.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝕞𝕝𝕒𝕟𝕠༒༒ᚏ😈࿐;𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;𝙗𝙧𝙪𝙘𝙚𝙡𝙚𝙢𝙬𝙚𝙡+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
+ <a href="https://files.catbox.moe/92jgih.jpg"><img src="font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+MILANOSCARDA╺+MILANO+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝕞𝕚𝕝𝕒𝕟𝕠𝕤𝕔𝕒𝕣𝕕𝕒+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝕞𝕚𝕝𝕒𝕟𝕠.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝕞𝕝𝕒𝕟𝕠༒༒ᚏ😈࿐;𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;𝙗𝙧𝙪𝙘𝙚𝙡𝙚𝙢𝙬𝙚𝙡+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
  <a href="https://files.catbox.moe/92jgih.jpg">
  <img alt="milanoscarda" height="300" src="https://files.catbox.moe/63oi9w.jpeg">
 
