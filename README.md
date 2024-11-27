@@ -1,32 +1,32 @@
 
- [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𓅓+𝐵𝑂𝑁𝐼𝑃𝐻𝐴𝐶𝐸+𝐼𝑆+𝑀𝑌+𝑂𝑊𝑁𝐸𝑅+𓅓)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F01&lines=𓅓+MILANO+𝐼𝑆+𝑀𝑌+𝑂𝑊𝑁𝐸𝑅+𓅓)](https://git.io/typing-svg)
 
 </p>
- <img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+ <img src="https://files.catbox.moe/92jgih.jpg" height="90" width="100%">
 
- <a href="https://github.com/DenverCoder1/readme-typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝐁𝐎𝐍𝐈𝐏𝐇𝐀𝐂𝐄+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;Ibrahim+Adams+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
- <a href="https://files.catbox.moe/63oi9w.jpeg">
- <img alt="BONIPHACE-MD" height="300" src="https://files.catbox.moe/63oi9w.jpeg">
+ <a href="https://files.catbox.moe/92jgih.jpg"><img src="https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+MILANOSCARDA╺+MILANO+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝕞𝕚𝕝𝕒𝕟𝕠𝕤𝕔𝕒𝕣𝕕𝕒+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝕞𝕚𝕝𝕒𝕟𝕠.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝕞𝕝𝕒𝕟𝕠༒༒ᚏ😈࿐;𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹.&heart;++;Self-taught+Back-Created+By,;𝙗𝙧𝙪𝙘𝙚𝙡𝙚𝙢𝙬𝙚𝙡+Am+The,;Best+Is+Bot+For+You+To,;Deploy..<3"></a>
+ <a href="https://files.catbox.moe/92jgih.jpg">
+ <img alt="milanoscarda" height="300" src="https://files.catbox.moe/63oi9w.jpeg">
 
-## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝐁𝐎𝐍𝐈𝐏𝐇𝐀𝐂𝐄+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘࿐;💕𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😁𝐰𝐚+𝐛𝐨𝐭🌹)](https://git.io/typing-svg)
+## [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Rockstar-ExtraBold&color=F33A6A&lines=𝐖𝐞𝐥𝐜𝐨𝐦𝐞+𝐓𝐨+𝙆𝙄𝙉𝙂╺+𝗕𝗢𝗡𝗜𝗣𝗛𝗔𝗖𝗘+-+𝗕𝗢𝗧.;𝙿𝙾𝚆𝙴𝚁𝙳+𝙱𝚈:+𝐌𝐑+𝙢𝙞𝙡𝙖𝙣𝙤𝙨𝙘𝙖𝙧𝙙𝙖+𝐓𝐄𝐀𝐌;ℂ𝕣𝕖𝕒𝕥𝕖𝕕+𝕓𝕪:+𝙢𝙞𝙡𝙖𝙣𝙤.𝗧𝗘𝗖𝗛;𝐌𝐑:+☬𝔻𝔸ℝ𝕂༒𝙢𝙞𝙖𝙣𝙤𝙨𝙘𝙖𝙧𝙙𝙖࿐;😈𝐩𝐨𝐰𝐞𝐫𝐟𝐮𝐥;😡𝐰𝐚+𝐛𝐨𝐭😤)](https://git.io/typing-svg)
 
 
-<img src="https://i.imgur.com/dBaSKWF.gif" height="90" width="100%">
+<img src="https://files.catbox.moe/v0c0t4.jpg" height="90" width="100%">
 
   </h1> 
-<p align="center">l introduce <b>BONIPHACE-MD</b>, a powerful simple WhatsApp bot </p>
+<p align="center">l introduce <b>BRUCELEE-MD</b>, a powerful simple WhatsApp bot </p>
 
 </p>
   <p align="center">
-<a href="https://github.com/boniphace478/followers"><img title="Followers" src="https://img.shields.io/github/followers/boniphace478?color=blue&style=flat-square"></a>
-<a href="https://github.com/boniphace478/BONIPHACE-MD/stargazers/"><img title="STARS" src="https://img.shields.io/github/stars/boniphace478/boniphace-md?&style=social"></a>
-<a href="https://github.com/boniphace478/boniphace-md/network/members"><img title="Forks" src="https://img.shields.io/github/forks/boniphace478/boniphace-md?style=social"></a>
-<a href="https://github.com/boniphace478/boniphace-md/watchers"><img title="Watching" src="https://img.shields.io/github/watchers/boniphace478/boniphace-md?label=Watching&style=social"></a>
-<a href="https://github.com/boniphace478/BONIPHACE-MD/"><img title="Size" src="https://img.shields.io/github/repo-size/boniphace478/BONIPHACE-MD?style=flat-square&color=green"></a>
-<a href="https://github.com/boniphace478/BONIPHACE-MD/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
+<a href="https://github.com/Milanoscarda2/MILANOSCARDA"><img title="Followers" src="https://img.shields.io/github/followers/boniphace478?color=blue&style=flat-square"></a>
+<a href="https://github.com/Milanoscarda2/MILANOSCARDA"><img title="STARS" src="https://img.shields.io/github/stars/milanoscarda/Brucelee-md?&style=social"></a>
+<a href="https://github.com/Milanoscarda2/MILANOSCARDA"><img title="Forks" src="https://img.shields.io/github/forks/milanoscarda 254/BRUCELEE-MD?style=social"></a>
+<a href="https://github.com/milanoscarda2/MILANOSCARDA/watchers"><img title="Watching" src="https://files.catbox.moe/c6td60.jpg/github/watchers/boniphace478/boniphace-md?label=Watching&style=social"></a>
+<a href="https://github.com/milanoscarda 2/Brucelee-md/"><img title="Size" src="https://files.catbox.moe/qtofy9.mp4/github/repo-size/milanoscarda2/BRUCELEE-MD?style=flat-square&color=green"></a>
+<a href="https://github.com/Milanoscarda2/BRUCELEE-MD/graphs/commit-activity"><img height="20" src="https://img.shields.io/badge/Maintained%3F-yes-green.svg"></a>&nbsp;&nbsp;
 </p>
 </p>
-<p align="center"><img src="https://profile-counter.glitch.me/{boniphace478}/count.svg" alt="Boniphace-md :: Visitor's Count"/></p>
+<p align="center"><img src="https://profile-counter.glitch.me/{milanoscarda254}/count.svg" alt="Brucelee-md:: Visitor's Count"/></p>
 
 ---
 
@@ -39,7 +39,7 @@
 ---
 
 <p align="center">
-  <a href="https://github.com/boniphace478/Boniphace-md"><b>Boniphace-md</b></a> Support Deploy On...
+  <a href="https://github.com/Milanoscarda 2/Brucelee-MD"><b>Boniphace-md</b></a> Support Deploy On...
 </p>
 
 <p align="center">
