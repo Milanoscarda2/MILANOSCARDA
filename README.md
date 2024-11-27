@@ -43,8 +43,8 @@
 </p>
 
 <p align="center">
-  <a href="https://github.com/milanoscarda 2/Brucelee-md/blob/main/temp/deploy-on-vps.md"><img src="https://files.catbox.moe/92jgih.jpg/badge/self hosting-3d1513?style=for-the-badge&logo=serverless&logoColor=FD5750"></a>
-  <a href="https://dashboard.heroku.com/new?template=https://github.com/milanoscarda 2/milanoscarda/tree/main"><img src="https://img.shields.io/badge/heroku-9d7acc?style=for-the-badge&logo=heroku&logoColor=430098"></a>
+  <a href="https://github.com/Milanoscarda2/MILANOSCARDA/blob/main/temp/deploy-on-vps.md"><img src="https://files.catbox.moe/92jgih.jpg/badge/self hosting-3d1513?style=for-the-badge&logo=serverless&logoColor=FD5750"></a>
+  <a href="https://dashboard.heroku.com/new?template=https://github.com/Milanoscarda2/MILANOSCARDA//tree/main"><img src="https://img.shields.io/badge/heroku-9d7acc?style=for-the-badge&logo=heroku&logoColor=430098"></a>
   <a href="https://whatsapp.com/channel/0029VaiMm7d4yltT51HS1T1G"><img src="https://img.shields.io/badge/CodeSpace-green?colorA=%23ff000&colorB=%23017e40&style=for-the-badge&logo=git&logoColor=white"></a>
 </p>
 
